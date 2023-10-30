@@ -8,5 +8,5 @@ https://friendscafeservice.blogspot.com/2023/10/central-perk-iconic-coffee-shop-
 Facebook
 https://www.facebook.com/friendscafe.service
 
-Email- Newsletter
+Mail- Newsletter
 https://us21.admin.mailchimp.com/templates/share?id=199621338_dbbf8c8ed20b57475577_us21
