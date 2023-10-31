@@ -1,5 +1,5 @@
 # Swetha123
-YouTube vedio 
+YouTube video 
 https://youtube.com/watch?v=rs7_V433PAg&feature=shared
 
 Blogspot
